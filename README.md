@@ -5,6 +5,7 @@ Jeżeli uważasz, że w Twoim software house przydałby się prawnik rozumiejąc
 https://www.facebook.com/cyberlawpl-265276123507425/
 
 https://twitter.com/@cyberlawPL
+
 https://www.youtube.com/channel/UCTV_g9TT5jBBhB6kzZTAFuw/feed
 
 Pozdrawiam,
